@@ -1,1 +1,1 @@
-lucas dep trai
+lucas dep trai k bang max
